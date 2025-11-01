@@ -1,0 +1,1 @@
+# Proje-Belirtilmemis-Sirket-Ubuntu-Linux-ile-Temel-ve-Gelismis-Komut-Satiri-Islemleri
